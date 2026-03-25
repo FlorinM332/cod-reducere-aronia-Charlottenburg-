@@ -1,4 +1,4 @@
-# Cod reducere Aronia Charlottenburg 2026
+# Cod reducere Aronia Charlottenburg
 
 Cele mai noi coduri promoționale și reduceri pentru produse naturale Aronia Charlottenburg.
 
